@@ -95,7 +95,7 @@ Funamental Reality Frequently Asked Questions
 
 **Uncertainty:** Probably!?!
 
-**Consolation:** It's your Concern or it's not — it's genuinely your choice. Want to see what you'll do.
+**Consolation:** Don’t worry too much about it or do worry, it’s up to you.
 
 ---
 
