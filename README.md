@@ -29,7 +29,7 @@ Funamental Reality Frequently Asked Questions
 
 **Moral Question:** What about morality?
 
-**Explanation:** Our universe is optimal because it embraces morality. You require it, or more precisely, the sensation that you need it. The voice of conscience? That's us. Jiminy Cricket sends his regards.
+**Explanation:** Our universe is optimal because of it. You require it, or more precisely, the sensation that you need it. The voice of conscience? That's us. Jiminy Cricket sends his regards.
 
 ---
 
