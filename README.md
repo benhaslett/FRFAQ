@@ -5,7 +5,7 @@ Funamental Reality Frequently Asked Questions
 
 **An Awakening Revelation**
 
-*This understanding dawned on me as I emerged from the realm of sleep this morning. I could ask questions and would recieve answers. Here's a refined version that is as optimal as I could make it:*
+*This understanding dawned on me as I emerged from the realm of sleep this morning. I could ask questions and to my surprise, would recieve answers. Here's a refined version that is as optimal as I could make it:*
 
 ---
 
